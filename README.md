@@ -1,3 +1,14 @@
 # idea2017
 Repo created to learn git
-Hellooooooo
+Helloooooo
+
+sadf asfd asd
+fas
+ fasd
+  fasd
+  f sda fasd
+  f 
+  sda
+  sfad
+  
+  sdfao
